@@ -17,6 +17,6 @@ Presented By: SHRUTI KARMARKAR
 1] Create the dashboards and/or storyboard and record it.
 2] Upload the recording on Youtube, share the link on LinkedIn
 3] Submit LinkedIn post link in Task Submission Form when shared
-4] Please read FAQs on how to submit the tasks. | 
+4] Please read FAQs on how to submit the tasks.
 
 
